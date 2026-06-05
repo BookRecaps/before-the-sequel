@@ -39,3 +39,29 @@ Then it is also revealed that Harry, the old homeless man Avery used to play che
 Grayson also makes it clear to Avery that nothing can happen between the two of them despite the feelings because of how Jameson also feels for her and Grayson does not want to make the same mistake he did with Emily.
 
 Avery also finds a hidden compartment in Tobias’ room with a bunch of pictures taken of her ever since she was six years old which tells us that Tobias had kept track of her since a long time and knew what he was doing when he gave his fortune to her. The reason remains unclear still but this confirms that Avery was not a random girl he just chose.
+
+## **Characters & Relationships**
+
+### Avery
+
+She initially in the book is struggling because of financial problems and is therefore juggling school alongside a job. She is studying in high school working towards earning a scholarship for a good college. She as a child used to play all sorts of games with her mom. She has feelings for both Jameson and Grayson just like Emily did, therefore she is compared to Emily multiple times. Both the boys feel for her too
+
+### Libby and Nash
+
+She is Avery’s stepsister. They have the same father. After Avery’s mother passed away, Libby took her in and became her guardian. Even after inheriting the estate Libby is living with Avery in the Hawthorne House. She is described as someone who is a ray of sunshine and cannot say no to people. Libby is noticed to be spending a lot of time with Nash Hawthorne towards the end of the book. Nash is the oldest Hawthorne brother. He is described as someone always ready to help someone. Most of the servants in the house are Nash’s because he wanted to help them. One such servant is Millie. 
+
+### Grayson and Jameson
+
+Grayson was expected to be the inheritor of Tobias’ fortune and The Hawthorne Foundation because he had worked towards the foundation since he was a child. He was therefore bitter towards Avery initially. He started putting his family before all after Emily’s death because Tobias told him that none of this would have happened if he would have chosen his brother, Jameson. Jameson a sensation seeker with hunger to find something ever since he was born. Someone who is always down to solve a riddle. Both Jameson and Grayson have ultimately developed feelings for Avery and both blame themselves for Emily’s death.
+
+### Thea and Rebecca
+
+Rebecca’s life used to revolve around Emily because their parents told Rebecca to do whatever made Emily happy because of her heart condition. She never really wanted anything for herself except when Thea came along, she fell in love with her. Thea goes to the same school as the Hawthornes and Avery. She blames the Hawthornes for Emily’s death and goes to great lengths to remind them of what they did. She made Avery dress up the same way Emily did, only to instigate the brothers.
+
+## **Things That May Matter for The Hawthorne Legacy**
+
+- The biggest unanswered question remains: Why did Tobias Hawthorne leave his fortune to Avery, a girl who appeared to have no connection to the family?
+- Avery has dreams and remembers playing ‘I have a secret’ with her mother where her mom says that she has a secret about the day Avery was born but never got to telling her that. We do not even find out about the secret in the first book.
+- The main cliffhanger the book left us on is that Toby Hawthorne who was said to be dead for more twenty years, the son of Tobias Hawthorne is none other than the Harry in the park that Avery used to play chess with.
+- Xander is also given an individual puzzle by Tobias Hawthorne which is to find Toby Hawthorne.
+- Xander may have a crush on Rebecca with the way he talks about her in the last chapter and mentions that he wanted Rebecca there but could not be alone with her.
