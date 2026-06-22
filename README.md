@@ -8,7 +8,7 @@ Quick, spoiler-safe refreshers for readers who want to continue a series without
 
 ### The Folk Of Air Series
 - [The Cruel Prince](The-cruel-prince.html)
-- The Wicked King (coming soon)
+- [The Wicked King](The-wicked-king.html)
 - The Queen of Nothing (coming soon)
 
 ### The Stolen Heir Duology
