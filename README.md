@@ -1,8 +1,8 @@
-# before-the-sequel
+# Before The Sequel
 **Everything you need to remember before reading the next book in a series.**
-Before the Sequel
 
-Quick, spoiler-safe refreshers for readers who want to continue a series without rereading previous books.
+Quick refreshers for readers who want to continue a series without rereading previous books.
+A recap of a book without spoiling the sequel.
 
 ## Available Recaps
 
