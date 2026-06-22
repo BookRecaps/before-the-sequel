@@ -65,4 +65,5 @@ Rebecca’s life used to revolve around Emily because their parents told Rebecca
 - Avery has dreams and remembers playing ‘I have a secret’ with her mother where her mom says that she has a secret about the day Avery was born but never got to telling her that. We do not even find out about the secret in the first book.
 - The main cliffhanger the book left us on is that Toby Hawthorne who was said to be dead for more twenty years, the son of Tobias Hawthorne is none other than the Harry in the park that Avery used to play chess with.
 - Xander is also given an individual puzzle by Tobias Hawthorne which is to find Toby Hawthorne.
+- The fact that Tobias Hawthorne kept pictures taken of Avery throughout her life tels us that maybe she was not chosen just as a matter of chance because her name jumbled gives us 'A Very Risky Game' and because her birthdate matches Rebecca's death anniversary. Maybe she was chosen for another reason.
 - Xander may have a crush on Rebecca with the way he talks about her in the last chapter and mentions that he wanted Rebecca there but could not be alone with her.
