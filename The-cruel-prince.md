@@ -1,5 +1,7 @@
 # The Cruel Prince
 
+This recap is intended as a memory refresher for readers who have already read the book and want a quick reminder before continuing the series. It is not a substitute for the original work. All characters, settings, and storylines belong to their respective authors and publishers. If you have not read the book, I strongly recommend experiencing the original story first. No summary can replicate the depth, suspense, and enjoyment of reading the book itself.
+
  ## What Happen in the Book (10 Minutes)
 
 <img src="The-cruel-prince.jpg" width="250" align="right">
