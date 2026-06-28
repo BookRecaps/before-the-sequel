@@ -9,6 +9,7 @@ At the end of The Cruel Prince, Cardan is the high king of Elfhame, against his 
 Jude has not spoken to Taryn or Locke since she found out they were getting married and viewed it as betrayal from her twin.
 
 Balekin, Cardan’s only alive sibling who had betrayed the High king and his entire family at the coronation in the previous book has been sent to the Tower of Forgetting which is like prison for the Faye. 
+Jude technically went against Madoc by making Cardan King and overall ruined his plan of making Oak the King and ruling through him since Oak is extremely young to actually rule. She did all this right under Madoc's nose without him realising it until the final scene.
 
 ## What Happen in the Book (10 Minutes)
 
