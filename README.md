@@ -19,6 +19,10 @@ A recap of a book without spoiling the sequel.
 - [The Inheritance Games](The-Inheritance-Games.html)
 - The Hawthorne Legacy (coming soon)
 
+### The Naturals 
+- [The Naturals](The-Naturals.html)
+- Killer Instinct (coming soon)
+
 ## What You'll Find Here
 
 - What happens in the book (5-10 minutes)
