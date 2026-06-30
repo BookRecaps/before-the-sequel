@@ -3,6 +3,7 @@
 This recap is intended as a memory refresher for readers who have already read the book and want a quick reminder before continuing the series. It is not a substitute for the original work. All characters, settings, and storylines belong to their respective authors and publishers. If you have not read the book, I strongly recommend experiencing the original story first. No summary can replicate the depth, suspense, and enjoyment of reading the book itself.
 
 ## What happens in the book (10 minutes)
+<img src="THE-NATURALS.jpg" width="250" align="right">
 
 Casandra is approached by Micheal at the restaurant she works at as a waitress. She then meets Officer Briggs who tells her that there is a secret program of the FBI called Naturals where people who have special skills are being a part of this in order to solve all the cold cases of serial killers by looking at the recordings and reading the files of the cases and they would want her to join the program as a Profiler because of her exceptional skills to read people with accuracy. 
 
