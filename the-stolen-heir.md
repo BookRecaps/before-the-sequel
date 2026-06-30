@@ -3,7 +3,7 @@ This recap is intended as a memory refresher for readers who have already read t
 All characters, settings, and storylines belong to their respective authors and publishers. If you have not read the book, I strongly recommend experiencing the original story first. No summary can replicate the depth, suspense, and enjoyment of reading the book itself.
 
 ## What happens in the book (10 minutes)
-
+<img src="THE-STOLEN-HEIR.jpg" width="250" align="right">
 Wren moves to the mortal world after Jude freed her from the bridle at the end of ‘The Queen of Nothing’ and practices breaking curses cast by the folk on the mortals because she knows how it feels like to be captured.
 
 Oak and Tiernan and their prisoner Hyacinthe (half falcon) approach Wren for help to stop Lady Nore as she is building an army of all the faeries that were turned to falcons at the end of ‘The Queen of Nothing’ and she has Mab’s bones which have immense magical properties that can destroy Elfhame. Since Jude made Lady Nore vow to follow all of Wren’s commands, Oak believes Wren can help them stop her. 
