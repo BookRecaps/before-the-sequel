@@ -3,6 +3,7 @@
 This recap is intended as a memory refresher for readers who have already read the book and want a quick reminder before continuing the series. It is not a substitute for the original work. All characters, settings, and storylines belong to their respective authors and publishers. If you have not read the book, I strongly recommend experiencing the original story first. No summary can replicate the depth, suspense, and enjoyment of reading the book itself.
 
 ## ‘The Cruel Prince’ Overview
+<img src="THE-WICKED-KING.png" width="250" align="right">
 
 At the end of The Cruel Prince, Cardan is the high king of Elfhame, against his wishes because Jude tricked him. He is also caught under an oath that he took previously to prove his loyalty where he promised to follow every command made by Jude for 1 year and 1 day exactly. Jude is Cardan’s sentinel at this point. 
 
