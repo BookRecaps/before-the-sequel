@@ -13,6 +13,7 @@ A recap of a book without spoiling the sequel.
 - [The Cruel Prince](The-cruel-prince.html)
 - [The Wicked King](The-wicked-king.html)
 - The Queen of Nothing (coming soon)
+  
 <div style="clear: both;"></div>
 
 <img src="TSHSERIES.jpg" width="100" align="right">
@@ -20,6 +21,8 @@ A recap of a book without spoiling the sequel.
 ### The Stolen Heir Duology
 -  [The Stolen Heir](the-stolen-heir.html)
 - The Prisoner's Throne (coming soon)
+
+<div style="clear: both;"></div>
 
 <img src="TIGSERIES.jpg" width="200" align="right">
 
