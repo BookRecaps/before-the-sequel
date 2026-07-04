@@ -13,6 +13,7 @@ A recap of a book without spoiling the sequel.
 - [The Cruel Prince](The-cruel-prince.html)
 - [The Wicked King](The-wicked-king.html)
 - The Queen of Nothing (coming soon)
+<div style="clear: both;"></div>
 
 <img src="TSHSERIES.jpg" width="100" align="right">
 
