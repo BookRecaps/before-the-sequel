@@ -20,6 +20,7 @@ A recap of a book without spoiling the sequel.
 -  [The Stolen Heir](the-stolen-heir.html)
 - The Prisoner's Throne (coming soon)
 
+<img src="TIGSERIES.jpg" width="200" align="right">
 
 ### The Inheritance Games Series
 - [The Inheritance Games](The-Inheritance-Games.html)
