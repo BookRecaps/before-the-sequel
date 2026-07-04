@@ -39,6 +39,8 @@ This means that contrary to what everyone believes, there are 3 and not 2 Greenb
 
 A few moments after the coronation, Cardan who is missing is found by Jude, she drags him to the Court of Shadows to her companions and comes up with a strategy to make Oak the king in such a way that Madoc does not benefit. She needs Cardans’s help for that but does not trust him so asks him to take an oath to follow her orders for 1 year and 1 day. Cardan takes this oath because he does not want to be a king either way and hates the idea of being in the limelight and responsible. The original plan was for Cardan to crown Oak but Jude betrays Cardan last minute and makes him the King by asking Oak to crown him. Cardan cannot do anything about it because of the oath he took. So now Jude is exactly where Madoc wanted to be, now that Cardan is the king, she gets to make all the decisions because he swore to follow her commands. 
 
+<img src="AI-THECRUELPRINCE2.png" width="300" align="right">
+
 After everything goes according to plan her spy companions tell her the code name they came up with for her. ‘Queen’ . This highlights Jude’s character transformation from being vulnerable at the beginning to being in control and recognized for all the efforts and her potential. 
 
 Jude wants him to grow up happy away from the politics because he is royal blood she insists he live with Vivi and Heather in the mortal world for at least ten years, by the time he is all grown up. 
