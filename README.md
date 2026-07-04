@@ -20,6 +20,7 @@ A recap of a book without spoiling the sequel.
 -  [The Stolen Heir](the-stolen-heir.html)
 - The Prisoner's Throne (coming soon)
 
+
 ### The Inheritance Games Series
 - [The Inheritance Games](The-Inheritance-Games.html)
 - The Hawthorne Legacy (coming soon)
