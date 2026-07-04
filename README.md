@@ -8,7 +8,7 @@ A recap of a book without spoiling the sequel.
 
 ### The Folk Of Air Series
 
-<img src="the-cruel-prince-series.jpg" width="250" length="300" align="right">
+<img src="the-cruel-prince-series.jpg" width="150" length="200" align="right">
 
 - [The Cruel Prince](The-cruel-prince.html)
 - [The Wicked King](The-wicked-king.html)
