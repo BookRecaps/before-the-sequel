@@ -14,7 +14,7 @@ A recap of a book without spoiling the sequel.
 - [The Wicked King](The-wicked-king.html)
 - The Queen of Nothing (coming soon)
 
-<img src="TSHSERIES.jpg" width="200" align=" extreme right">
+<img src="TSHSERIES.jpg" width="200" align="right">
 
 ### The Stolen Heir Duology
 -  [The Stolen Heir](the-stolen-heir.html)
