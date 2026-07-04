@@ -6,8 +6,8 @@ A recap of a book without spoiling the sequel.
 
 ## Available Recaps
 
-### The Folk Of Air Series
 <img src="TCPSERIES.jpg" width="250" align="right">
+### The Folk Of Air Series
 
 - [The Cruel Prince](The-cruel-prince.html)
 - [The Wicked King](The-wicked-king.html)
