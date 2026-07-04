@@ -65,7 +65,9 @@ He is the prince hwo does not have very good familial relationships, after he ba
 
 ## Things that May Matter in The Wicked King (1 Minute)
 
-Nicasia and Cardan’s relationship was very important politically to maintain the relations between the land and the sea but that relationship colapsing might change things
+- Nicasia and Cardan’s relationship was very important politically to maintain the relations between the land and the sea but that relationship colapsing might change things.
+- By making Cardan the king from right under Madoc's nose, she has gone against Madoc in so many ways and ruined his plan so this will afecct their relationship in the future and how Madoc will look at her.
+- The aoth that Cardan has taken is only going to last for 1 year and 1 day and since Jude betrayed Cardan here and ruined the trust that was beginning to build between the two fo them, when the tenure is over Cardan has no reason to support or be loyal to her after that.
 
 
 
