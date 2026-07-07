@@ -1,4 +1,5 @@
-# Before The Sequel
+<img src="Banner.png" width="400" >
+
 **Everything you need to remember before reading the next book in a series.**
 
 Quick refreshers for readers who want to continue a series without rereading previous books.
