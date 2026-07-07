@@ -5,20 +5,20 @@ All characters, settings, and storylines belong to their respective authors and 
 
 ## What Happens in the Book (10 Minutes)
 <img src="The-inheritance-games.jpg" width="250" align="right">
-The Inheritance Games revolves around Avery Kylie Grambs who initially in the book is struggling because of financial problems. One day, Tobias Hawthorne, dies and has left behind his billion-dollar fortune to Avery alone despite having four grandsons and 2 daughters. Nobody knows why. The only condition laid out by Tobias for the money to go to Avery is that she must live in the house with the other Hawthrones for one year. 
+The Inheritance Games revolves around Avery Kylie Grambs who inherits Tobias Hawthorne's billion-dollar fortune after he dies, despite having four grandsons and 2 daughters, Avery inherit it. Nobody knows why. The only condition laid out by Tobias for the money to go to Avery is that she must live in the house with the other Hawthrones for one year. 
 Oren is the head of Security who is supposed to ensure Avery's safety after coming into the spotlight. Alisa is Avery's lawyer, she is also Nash Hawthorne's ex-girlfriend, she is taking care of all the legalities for smooth transfer of Tobias' empire to Avery and make the transition easy for Avery too.
 
-Jameson is certain that this is a puzzle laid out by his grandfather that he expects them to solve so Jameson convinces Avery to work with him towards finding out the truth. While working together Avery starts having feelings for him and they eventually kiss. As she continues to live in the house and work with Jameson she notices constant tension between Grayson and Jameson. 
+Jameson is certain this is a puzzle laid out by his grandfather and convinces Avery to work with him towards finding out why Avery. When working together, Avery starts having feelings for him and they eventually kiss. As she continues to live in the house and work with Jameson she notices constant tension between Grayson and Jameson. 
 
-While getting accustomed to the new life and figuring out the puzzle Avery thought that she was the target for the Hawthornes because while fulfilling the condition to get the estate, if she died, people believed that the money would go to the Hawthornes but in reality it would go to her absent father or Libby. When Avery was shot at and almost killed twice she suspected it to be a Hawthorne andfound out that it was Skye Hawthorne’s plan to get Drake to attack and kill Avery.
+While getting accustomed to the new life and figuring out the puzzle, Avery was the target for the Hawthornes because if she died and was unable to fulfill the condition to get the estate, people thought that the money would go to the Hawthornes but in reality it would go to Libby. When Avery was shot at and almost killed twice, that is why she suspected it to be a Hawthorne and found out that it was Skye Hawthorne’s plan to get Drake to attack and kill Avery.
 
 Whenever Drake would abuse Libby initially, Avery would insist Libby to leave him and recently Drake had been trying to get in touch with Libby again to get money by telling her that he loves her and was sorry. Due to these reasons Drake wanted Avery dead and agreed to work with Skye.
 
-After finding out about this Grayson asks Avery to trust him to handle the situation and he tells Skye to move out or get arrested. This is a significant scene because this is where Grayson chooses Avery over his own mother.
+After finding out about this Grayson aska Skye to move out or get arrested. This is a significant scene because this is where Grayson chooses Avery over his own mother.
 
 Throughout the book she is constantly warned to be away from the Hawthornes by different people like Thea, who tells her that the last girl that was associated with the Hawthornes was Emily and she died last year. Nash, Skye and Grayson, themselves had been subtly warning her not to get too attached to Jameson because he only looked at as a mystery to be solved and not a *person*, that he did not really care about her except for the game. These thoughts kept her up at night and she kept her guard up with Jameson even after the kiss.
 
-Avery eventually gets skeptical about working with Jameson so she decides to ask him if he only looks at her for the game. To this, he says 'everything is a game'. This is when she realises that Jameson looks at her only as a part of the puzzle set up by Tobias and she becomes close to Grayson and starts building a bond with him.
+Avery eventually gets skeptical about working with Jameson so she decides to ask him if he only looks at her for the game. To this, he says 'everything is a game'. This is when she realises that Jameson looks at her only as a part of the puzzle set up by Tobias and pushes Jameson away, she then becomes close to Grayson and starts building a bond with him.
 
  As the story continues Avery finds out that both Grayson and Jameson loved Emily and that she was the granddaughter of the Laughlins who are trusted workers of the Hawthornes. While Emily was alive she wanted Jameson as well as Grayson and turned it into a game, since the Hawthornes *love* to win They both played. On the day she died Jameson had broken up with her because Rebecca, Emily’s elder sister had shown him a recording of Emily talking about what the boys did for her, to her and with her because she liked to keep score. 
 
@@ -30,16 +30,16 @@ Rebecca knew from the beginning that Skye was the one who tried to get Avery kil
 
 After being dumped by Jameson, Emily called Grayson and asked him to take her cliff diving as a celebration. She jumped off a cliff and died after that because of her heart problems. Jameson had followed Grayson and Emily to the cliff and saw Emily dying there but did not do anything about it because he thought that she was putting up an act for attention.
 
-Emily died on the same date as Avery’s birthday a year before Tobias died and the last clue to this puzzle was this date. Jameson and Grayson both thought the old man was trying to punish them by reminding them of their mistakes. Grayson for choosing Emily over family and Jameson for just watching Emily die. However, Xander explains later that the Tobias never wanted to punish them but wanted to see them together again, reconcile which is why he had asked Xander to make sure they worked together. 
+Emily died on the same date as Avery’s birthday a year before Tobias died and the last clue to this puzzle was this date. Jameson and Grayson both thought the old man was trying to punish them by reminding them of their mistakes for choosing Emily over family. However, Xander explains later that the Tobias never wanted to punish them but wanted to see them reconcile which is why he had asked Xander to make sure they worked together. 
 
-After the puzzle was solved it is revealed that Xander was given a different task that he would find  written in his envelope in the final safe after the former puzzle was completed. Xander’s challenge was to find Tobias Hawthorne II. The man who was considered death by his entire family for 20 years. 
+After the puzzle was solved, everyone was given the true message from their grandfather in their envelope and it is revealed that Xander was given a different task that he would find written in his envelop. Xander’s challenge was to find Tobias Hawthorne II. The man who was considered dead by his entire family for 20 years. 
 
 Then it is also revealed that Harry, the old homeless man Avery used to play chess with at the park and fund his dinner occasionally was in fact Toby Hawthorne. 
 
 Grayson also makes it clear to Avery that nothing can happen between the two of them despite the feelings because of how Jameson also feels for her and Grayson does not want to make the same mistake he did with Emily.
 
-Avery also finds a hidden compartment in Tobias’ room with a bunch of pictures taken of her ever since she was six years old which tells us that Tobias had kept track of her since a long time and knew what he was doing when he gave his fortune to her. The reason remains unclear still but this confirms that Avery was not a random girl he just chose.
-
+Avery also finds a hidden compartment in Tobias’ room with a bunch of pictures taken of her ever since she was six years old which tells us that Tobias had kept track of her since a long time. This makes it clear that she was not chosen simply because her birthdate was the same  Emily's death anniversary. The reason remains unclear still but this confirms that Avery was not a random girl he just chose.
+Max is Avery's long distance best friend that goes through alot ever since Avery inherited the fortune because of the papparazzi. So at the end of the book to thank her Avery also funds for a trip to Australia for Max and her entire family. 
 ## **Characters & Relationships**
 
 ### Avery
