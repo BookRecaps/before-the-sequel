@@ -1,4 +1,4 @@
-<img src="Banner.png" width="400">
+<img src="Gemini_Generated_Image_yzkh2lyzkh2lyzkh.png" width="400">
 
 **Everything you need to remember before reading the next book in a series.**
 
