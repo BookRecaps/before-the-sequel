@@ -1,4 +1,4 @@
-<img src="Banner.png" width="400" >
+<img src="Banner.png" width="400">
 
 **Everything you need to remember before reading the next book in a series.**
 
