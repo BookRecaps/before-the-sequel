@@ -6,21 +6,20 @@ All characters, settings, and storylines belong to their respective authors and 
 ## What Happens in the Book (10 Minutes)
 <img src="The-inheritance-games.jpg" width="250" align="right">
 The Inheritance Games revolves around Avery Kylie Grambs who inherits Tobias Hawthorne's billion-dollar fortune after he dies, despite having four grandsons and 2 daughters, Avery inherit it. Nobody knows why. The only condition laid out by Tobias for the money to go to Avery is that she must live in the house with the other Hawthrones for one year. 
-Oren is the head of Security who is supposed to ensure Avery's safety after coming into the spotlight. Alisa is Avery's lawyer, she is also Nash Hawthorne's ex-girlfriend, she is taking care of all the legalities for smooth transfer of Tobias' empire to Avery and make the transition easy for Avery too.
 
 Jameson is certain this is a puzzle laid out by his grandfather and convinces Avery to work with him towards finding out why Avery. When working together, Avery starts having feelings for him and they eventually kiss. As she continues to live in the house and work with Jameson she notices constant tension between Grayson and Jameson. 
 
-While getting accustomed to the new life and figuring out the puzzle, Avery was the target for the Hawthornes because if she died and was unable to fulfill the condition to get the estate, people thought that the money would go to the Hawthornes but in reality it would go to Libby. When Avery was shot at and almost killed twice, that is why she suspected it to be a Hawthorne and found out that it was Skye Hawthorne’s plan to get Drake to attack and kill Avery.
+While getting accustomed to the new life and figuring out the puzzle, Avery was the target for the Hawthornes because if she died, people thought that the money would go to the Hawthornes but in reality it would go to Libby or her absent father. When Avery was shot at and almost killed twice, she suspected it to be a Hawthorne and found out that it was Skye Hawthorne’s plan to get Drake to attack and kill Avery.
 
-Whenever Drake would abuse Libby initially, Avery would insist Libby to leave him and recently Drake had been trying to get in touch with Libby again to get money by telling her that he loves her and was sorry. Due to these reasons Drake wanted Avery dead and agreed to work with Skye.
+Whenever Drake would abuse Libby initially, Avery would insist Libby to leave him and Skye made him believe that he would benefit if Avery were dead and since Drake did not particularly like Avery either, he agreed to work with Skye.
 
-After finding out about this Grayson aska Skye to move out or get arrested. This is a significant scene because this is where Grayson chooses Avery over his own mother.
+After finding out about Skye's murder attempts, Grayson asks her to move out. This is a significant scene because this is where Grayson chooses Avery over his own mother.
 
-Throughout the book she is constantly warned to be away from the Hawthornes by different people like Thea, who tells her that the last girl that was associated with the Hawthornes was Emily and she died last year. Nash, Skye and Grayson, themselves had been subtly warning her not to get too attached to Jameson because he only looked at as a mystery to be solved and not a *person*, that he did not really care about her except for the game. These thoughts kept her up at night and she kept her guard up with Jameson even after the kiss.
+Throughout the book she is constantly warned to be away from the Hawthornes by different people like Thea, who tells her that the last girl who was associated with the Hawthornes, was Emily who died last year. Nash, Skye and Grayson, themselves had been subtly warning her not to get attached to Jameson because he only looks at her as a mystery to be solved and not a *person*, that he did not really care about her except for the game.
 
-Avery eventually gets skeptical about working with Jameson so she decides to ask him if he only looks at her for the game. To this, he says 'everything is a game'. This is when she realises that Jameson looks at her only as a part of the puzzle set up by Tobias and pushes Jameson away, she then becomes close to Grayson and starts building a bond with him.
+Avery eventually gets skeptical about working with Jameson so she decides to ask him if he only looks at her for the game. To this, he says 'everything is a game'. This is when she realises that everyone was right, she builds a wall between the two of them and she becomes close to Grayson. 
 
- As the story continues Avery finds out that both Grayson and Jameson loved Emily and that she was the granddaughter of the Laughlins who are trusted workers of the Hawthornes. While Emily was alive she wanted Jameson as well as Grayson and turned it into a game, since the Hawthornes *love* to win They both played. On the day she died Jameson had broken up with her because Rebecca, Emily’s elder sister had shown him a recording of Emily talking about what the boys did for her, to her and with her because she liked to keep score. 
+As the story continues Avery finds out that both Grayson and Jameson loved Emily and that she was the granddaughter of the Laughlins who are trusted workers of the Hawthornes. While Emily was alive she wanted Jameson as well as Grayson and turned it into a game, since the Hawthornes *love* to win They both played. On the day she died Jameson had broken up with her because Rebecca, Emily’s elder sister had shown him a recording of Emily talking about what the boys did for her, to her and with her because she liked to keep score. 
 
 The reason Rebecca had done this was because Emily wanted Thea to date Xander. Everyone around Emily used to keep her happy because of her weak heart before she got the transplant and that is why Thea and Xander decided to fake date whilst in reality Rebecca was secretly dating Thea and they were deeply in love. 
 
@@ -57,6 +56,9 @@ Grayson was expected to be the inheritor of Tobias’ fortune and The Hawthorne 
 ### Thea and Rebecca
 
 Rebecca’s life used to revolve around Emily because their parents told Rebecca to do whatever made Emily happy because of her heart condition. She never really wanted anything for herself except when Thea came along, she fell in love with her. Thea goes to the same school as the Hawthornes and Avery. She blames the Hawthornes for Emily’s death and goes to great lengths to remind them of what they did. She made Avery dress up the same way Emily did, only to instigate the brothers. Thea and Rebecca like each other.
+
+## Oren and Alisa 
+Oren is the head of Security who is supposed to ensure Avery's safety after coming into the spotlight. Alisa is Avery's lawyer, she is also Nash Hawthorne's ex-girlfriend, she is taking care of all the legalities for smooth transfer of Tobias' empire to Avery and make the transition easy for Avery too.
 
 ## **Things That May Matter for The Hawthorne Legacy**
 
