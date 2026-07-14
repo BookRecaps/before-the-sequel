@@ -29,7 +29,9 @@ A recap of a book without spoiling the sequel.
 
 ### The Inheritance Games Series
 - [The Inheritance Games](The-Inheritance-Games.html)
-- The Hawthorne Legacy (coming soon)
+- [The Hawthorne Legacy](The-hawthorne-legacy.html)
+- The Final Gambit (coming soon)
+
 
 ### The Naturals 
 - [The Naturals](The-Naturals.html)
