@@ -2,7 +2,7 @@
 
 This recap is intended as a memory refresher for readers who have already read the book and want a quick reminder before continuing the series. It is not a substitute for the original work. All characters, settings, and storylines belong to their respective authors and publishers. If you have not read the book, I strongly recommend experiencing the original story first. No summary can replicate the depth, suspense, and enjoyment of reading the book itself.
 
- ## What Happen in the Book (5-10 Minutes)
+ ##  What Happen in the Book (5-10 Minutes)
 
 <img src="THE-CUREL-PRINCE.jpg" width="250" align="right">
 Growing up as a human in the faerie land is extremely difficult for a mortal like Jude because the faerie can enchant her and make her perform actions that she has no control over. The faerie look at her like she is not good enough and will never be on the same level as them. Despite these difficulties and being exploited her whole life in Faerie Land she is constantly reminded that she is lucky to be adopted by Madoc because he is the High King, Eldred’s general. 
