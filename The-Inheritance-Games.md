@@ -7,6 +7,8 @@ All characters, settings, and storylines belong to their respective authors and 
 <img src="The-inheritance-games.jpg" width="250" align="right">
 The Inheritance Games revolves around Avery Kylie Grambs who inherits Tobias Hawthorne's billion-dollar fortune after he dies, despite having four grandsons and 2 daughters, Avery inherit it. Nobody knows why. The only condition laid out by Tobias for the money to go to Avery is that she must live in the house with the other Hawthrones for one year. 
 
+Oren, her dead of Security, Alisa, her personal Lawyer and Max, her best friend have been helping Avery adjust to her new life in different ways. Although Max and her develop a small rift for sometime because of the problems Max faces as a consequnce to Avery's new 'fame', both of them are understanding about their respective situations and sort it out ultimately.
+
 Jameson is certain this is a puzzle laid out by his grandfather and convinces Avery to work with him towards finding out why Avery. When working together, Avery starts having feelings for him and they eventually kiss. As she continues to live in the house and work with Jameson she notices constant tension between Grayson and Jameson. 
 
 While getting accustomed to the new life and figuring out the puzzle, Avery was the target for the Hawthornes because if she died, people thought that the money would go to the Hawthornes but in reality it would go to Libby or her absent father. When Avery was shot at and almost killed twice, she suspected it to be a Hawthorne and found out that it was Skye Hawthorne’s plan to get Drake to attack and kill Avery.
@@ -37,8 +39,8 @@ Then it is also revealed that Harry, the old homeless man Avery used to play che
 
 Grayson also makes it clear to Avery that nothing can happen between the two of them despite the feelings because of how Jameson also feels for her and Grayson does not want to make the same mistake he did with Emily.
 
-Avery also finds a hidden compartment in Tobias’ room with a bunch of pictures taken of her ever since she was six years old which tells us that Tobias had kept track of her since a long time. This makes it clear that she was not chosen simply because her birthdate was the same  Emily's death anniversary. The reason remains unclear still but this confirms that Avery was not a random girl he just chose.
-Max is Avery's long distance best friend that goes through alot ever since Avery inherited the fortune because of the papparazzi. So at the end of the book to thank her Avery also funds for a trip to Australia for Max and her entire family. 
+Avery also finds a hidden compartment in Tobias’ room with a bunch of pictures taken of her ever since she was six years old which tells us that Tobias had kept track of her since a long time. So maybe she was not chosen simply because her birthdate was the same  Emily's death anniversary. The reason however still remains unclear.
+
 ## **Characters & Relationships**
 
 ### Avery
@@ -60,11 +62,13 @@ Rebecca’s life used to revolve around Emily because their parents told Rebecca
 ## Oren and Alisa 
 Oren is the head of Security who is supposed to ensure Avery's safety after coming into the spotlight. Alisa is Avery's lawyer, she is also Nash Hawthorne's ex-girlfriend, she is taking care of all the legalities for smooth transfer of Tobias' empire to Avery and make the transition easy for Avery too.
 
+## Max 
+Max is Avery's best friend, she has extremely strict parents. Every since Avery has come in the limelight it has affected Max as well because the paparazzi have been behind her. They even reached out to her boyfriend and aksed for information which he was extracting from Max's phone behind her back and got caught by Max. She broke up with him but as revenge he sent vulgar pictures of Max to her parents. So she has gone through alot too but she loves Avery and has stood by her, supporting her. Despite the restrictions she makes time to talk to Avery regularly as well.
+
 ## **Things That May Matter for The Hawthorne Legacy**
 
 - The biggest unanswered question remains: Why did Tobias Hawthorne leave his fortune to Avery, a girl who appeared to have no connection to the family?
+- The fact that Tobias Hawthorne kept pictures taken of Avery throughout her life tels us that maybe she was not chosen just as a matter of chance because her name jumbled gives us 'A Very Risky Game' and because her birthdate matches Rebecca's death anniversary. Maybe she was chosen for another reason.
 - Avery has dreams and remembers playing ‘I have a secret’ with her mother where her mom says that she has a secret about the day Avery was born but never got to telling her that. We do not even find out about the secret in the first book.
 - The main cliffhanger the book left us on is that Toby Hawthorne who was said to be dead for more twenty years, the son of Tobias Hawthorne is none other than the Harry in the park that Avery used to play chess with.
 - Xander is also given an individual puzzle by Tobias Hawthorne which is to find Toby Hawthorne.
-- The fact that Tobias Hawthorne kept pictures taken of Avery throughout her life tels us that maybe she was not chosen just as a matter of chance because her name jumbled gives us 'A Very Risky Game' and because her birthdate matches Rebecca's death anniversary. Maybe she was chosen for another reason.
-- Xander may have a crush on Rebecca with the way he talks about her in the last chapter and mentions that he wanted Rebecca there but could not be alone with her.
