@@ -7,9 +7,9 @@ A recap of a book without spoiling the sequel.
 
 ## Available Recaps
 
-<img src="TCPSERIES.jpg" width="200" align="right">
-
 ### The Folk Of Air Series
+
+<img src="TCPSERIES.jpg" width="200" align="right">
 
 - [The Cruel Prince](The-cruel-prince.html)
 - [The Wicked King](The-wicked-king.html)
@@ -17,17 +17,19 @@ A recap of a book without spoiling the sequel.
   
 <div style="clear: both;"></div>
 
+### The Stolen Heir Duology
+
 <img src="TSHSERIES.jpg" width="100" align="right">
 
-### The Stolen Heir Duology
 -  [The Stolen Heir](the-stolen-heir.html)
 - The Prisoner's Throne (coming soon)
 
 <div style="clear: both;"></div>
 
+### The Inheritance Games Series
+
 <img src="TIGSERIES.jpg" width="200" align="right">
 
-### The Inheritance Games Series
 - [The Inheritance Games](The-Inheritance-Games.html)
 - [The Hawthorne Legacy](The-hawthorne-legacy.html)
 - The Final Gambit (coming soon)
