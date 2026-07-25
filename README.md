@@ -8,7 +8,6 @@ A recap of a book without spoiling the sequel.
 ## Available Recaps
 
 ### The Folk Of Air Series
-
 <img src="TCPSERIES.jpg" width="200" align="right">
 
 - [The Cruel Prince](The-cruel-prince.html)
@@ -18,7 +17,6 @@ A recap of a book without spoiling the sequel.
 <div style="clear: both;"></div>
 
 ### The Stolen Heir Duology
-
 <img src="TSHSERIES.jpg" width="100" align="right">
 
 -  [The Stolen Heir](the-stolen-heir.html)
@@ -27,7 +25,6 @@ A recap of a book without spoiling the sequel.
 <div style="clear: both;"></div>
 
 ### The Inheritance Games Series
-
 <img src="TIGSERIES.jpg" width="200" align="right">
 
 - [The Inheritance Games](The-Inheritance-Games.html)
