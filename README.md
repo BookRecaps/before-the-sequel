@@ -42,7 +42,7 @@ A recap of a book without spoiling the sequel.
 <div style="clear: both;"></div>
 
 ### A Good Girls Guide To Murder
-<img src="AGGGTM.jpg" width="200" align="right">
+<img src="AGGGTMSERIES.jpg" width="200" align="right">
 
 - [A Good Girls Guide To Murder](agoodgirlsguidetomurder.html)
 - Good Girl, Bad Blood (coming soon)
