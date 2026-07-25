@@ -38,7 +38,7 @@ A recap of a book without spoiling the sequel.
 - Killer Instinct (coming soon)
 
 ### A Good Girls Guide To Murder
--[A Good Girls Guide To Murder](agoodgirlsguidetomurder.html)
+- [A Good Girls Guide To Murder](agoodgirlsguidetomurder.html)
 - Good Girl, Bad Blood (coming soon)
 
 ## What You'll Find Here
