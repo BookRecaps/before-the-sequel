@@ -31,14 +31,23 @@ A recap of a book without spoiling the sequel.
 - [The Hawthorne Legacy](The-hawthorne-legacy.html)
 - The Final Gambit (coming soon)
 
+<div style="clear: both;"></div>
 
 ### The Naturals 
+<img src="TNS.jpg" width="200" align="right">
+
 - [The Naturals](The-Naturals.html)
 - Killer Instinct (coming soon)
 
+<div style="clear: both;"></div>
+
 ### A Good Girls Guide To Murder
+<img src="AGGGTM.jpg" width="200" align="right">
+
 - [A Good Girls Guide To Murder](agoodgirlsguidetomurder.html)
 - Good Girl, Bad Blood (coming soon)
+
+<div shift="clear: both;"></div>
 
 ## What You'll Find Here
 
